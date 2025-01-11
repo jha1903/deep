@@ -36,3 +36,25 @@ Candidates who clear UGC NET are eligible to apply for teaching positions across
 UGC NET is a vital step for academic enthusiasts, offering intellectual growth and professional stability. Aspiring candidates should stay updated on the application process and prepare rigorously for success.
 
 For a complete guide to UGC NET 2025, including the application form, eligibility, and exam pattern, visit this link((https://www.tmu.ac.in/blog/ugc-net-2025-application-form-dates-eligibility-and-exam-pattern)).
+
+JEE Main 2025: Key Changes in Exam Pattern"
+
+The JEE Main 2025 exam pattern has undergone some changes that candidates must be aware of to plan their preparation effectively. Here’s a quick overview.
+
+Paper Structure
+
+The exam consists of two papers: Paper 1 for B.E./B.Tech aspirants and Paper 2 for B.Arch/B.Planning courses. Paper 1 includes multiple-choice and numerical questions in physics, chemistry, and mathematics.
+
+Marking Scheme
+
+Each correct answer earns four marks, while one mark is deducted for incorrect answers in multiple-choice questions. Numerical questions, however, have no negative marking.
+
+Sessional Flexibility
+
+JEE Main 2025 will be conducted in multiple sessions, allowing candidates to improve their scores by attempting the exam more than once.
+
+Stay Updated
+
+For more details on the exam pattern and other important announcements, refer to [JEE Main 2025 Exam Dates Announced: Admit Card and Exam Pattern]([url](https://www.tmu.ac.in/blog/jee-main-2025-exam-dates-announced-admit-card-and-exam-pattern)).
+
+Adapting to these changes is crucial for scoring well in JEE Main 2025.
