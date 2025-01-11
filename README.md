@@ -55,6 +55,6 @@ JEE Main 2025 will be conducted in multiple sessions, allowing candidates to imp
 
 Stay Updated
 
-For more details on the exam pattern and other important announcements, refer to [JEE Main 2025 Exam Dates Announced: Admit Card and Exam Pattern]((https://www.tmu.ac.in/blog/jee-main-2025-exam-dates-announced-admit-card-and-exam-pattern)).
+For more details on the exam pattern and other important announcements, refer to JEE Main 2025 Exam Dates Announced: Admit Card and Exam Pattern((https://www.tmu.ac.in/blog/jee-main-2025-exam-dates-announced-admit-card-and-exam-pattern)).
 
 Adapting to these changes is crucial for scoring well in JEE Main 2025.
