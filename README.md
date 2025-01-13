@@ -61,4 +61,4 @@ Adapting to these changes is crucial for scoring well in JEE Main 2025.
 
 How to Use the GATE Syllabus to Plan Your Studies
 Effective study planning starts with a solid understanding of the GATE syllabus. By knowing which topics are covered in the exam, aspirants can prioritise their study material. Moreover, it helps them assess their strengths and weaknesses. For a detailed subject-wise preparation strategy, check this guide on the GATE syllabus 2025, [GATE Syllabus 2025: Weightage and Subject-Wise Preparation Tips.
-]((https://www.tmu.ac.in/blog/gate-syllabus-2025-weightage-and-subject-wise-preparation-tips))
+](https://www.tmu.ac.in/blog/gate-syllabus-2025-weightage-and-subject-wise-preparation-tips)
