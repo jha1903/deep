@@ -62,3 +62,8 @@ Adapting to these changes is crucial for scoring well in JEE Main 2025.
 How to Use the GATE Syllabus to Plan Your Studies
 Effective study planning starts with a solid understanding of the GATE syllabus. By knowing which topics are covered in the exam, aspirants can prioritise their study material. Moreover, it helps them assess their strengths and weaknesses. For a detailed subject-wise preparation strategy, check this guide on the GATE syllabus 2025, [GATE Syllabus 2025: Weightage and Subject-Wise Preparation Tips.
 ](https://www.tmu.ac.in/blog/gate-syllabus-2025-weightage-and-subject-wise-preparation-tips)
+How to Manage Time During UP Board Exams
+
+Time management plays a crucial role in performing well in UP Board exams. With a packed syllabus, students often feel overwhelmed. Breaking the syllabus into smaller, manageable portions and creating a daily timetable can significantly reduce stress.
+
+Another essential tip is practising previous years' question papers under timed conditions. This not only helps in understanding the exam pattern but also improves speed and accuracy. For detailed insights on preparing effectively, explore these [UP Board Class 12th Subject-wise Preparation Tips](https://www.tmu.ac.in/blog/up-board-class-12th--subject-wise-preparation-tips). Proper time management ensures you can revise and practice without last-minute panic.
