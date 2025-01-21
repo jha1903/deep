@@ -67,3 +67,8 @@ How to Manage Time During UP Board Exams
 Time management plays a crucial role in performing well in UP Board exams. With a packed syllabus, students often feel overwhelmed. Breaking the syllabus into smaller, manageable portions and creating a daily timetable can significantly reduce stress.
 
 Another essential tip is practising previous years' question papers under timed conditions. This not only helps in understanding the exam pattern but also improves speed and accuracy. For detailed insights on preparing effectively, explore these [UP Board Class 12th Subject-wise Preparation Tips](https://www.tmu.ac.in/blog/up-board-class-12th--subject-wise-preparation-tips). Proper time management ensures you can revise and practice without last-minute panic.
+The Importance of Admit Cards in CMAT 2025
+
+An admit card is not just a formality but a mandatory document for appearing in the CMAT 2025 exam. It contains crucial details like your roll number, exam centre, and timing. Ensure that you download it well in advance and verify all details to avoid any last-minute hassle.
+
+Learn more about the importance of admit cards and other essential documents here: [CMAT 2025 Notification, Exam Dates, Registration, Admit Card, and Result.](https://www.tmu.ac.in/blog/cmat-2025-notification-exam-dates-registration-admit-card-and-result)
