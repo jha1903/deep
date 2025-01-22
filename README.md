@@ -72,3 +72,5 @@ The Importance of Admit Cards in CMAT 2025
 An admit card is not just a formality but a mandatory document for appearing in the CMAT 2025 exam. It contains crucial details like your roll number, exam centre, and timing. Ensure that you download it well in advance and verify all details to avoid any last-minute hassle.
 
 Learn more about the importance of admit cards and other essential documents here: [CMAT 2025 Notification, Exam Dates, Registration, Admit Card, and Result.](https://www.tmu.ac.in/blog/cmat-2025-notification-exam-dates-registration-admit-card-and-result)
+ Forensic Science: A Perfect Blend of Science and Technology
+[Forensic science](https://www.tmu.ac.in/blog/what-is-forensic-science-an-overview-of-the-course-and-career-paths) combines advanced scientific techniques and technology to solve crimes. With innovations like DNA profiling, digital forensics, and advanced fingerprint analysis, this field continues to evolve. If you're intrigued by the intersection of science, technology, and justice, learn more here.
