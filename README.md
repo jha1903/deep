@@ -87,6 +87,11 @@ Students explore advanced HR concepts, including talent acquisition, performance
 Emerging HR roles demand versatile skill sets that BBA programs effectively cultivate. Positions such as HR business partners, talent acquisition specialists, and organizational development consultants offer exciting career opportunities for graduates.
 
 Practical exposure through internships, HR simulations, and industry collaborations ensures students develop real-world competencies. Understanding the intricate balance between organizational goals and employee welfare becomes a significant professional advantage.
+Parents' Guide to Supporting UP Board Students
+Parents play a crucial role in their children's academic success, especially during the challenging UP Board examination period. Understanding how to provide effective support can significantly impact a student's performance and well-being.
+The recent release of the UP Board time table 2025 gives parents a clear framework to help organize their children's study schedule. This information allows families to create supportive environments conducive to effective learning.
+Parents should focus on providing emotional support while maintaining a balance between academics and relaxation. Creating a quiet study space, ensuring proper nutrition, and monitoring study hours without being overly restrictive are essential aspects of parental support.
+Additionally, maintaining open communication with teachers and staying informed about their child's progress can help parents provide targeted support where needed.
 
 [For comprehensive details about BBA course structures, admission processes, and potential HR career trajectories, visit TMU's extensive resource](https://www.tmu.ac.in/blog/bba-course-full-form-admission-process-syllabus-and-career).
 
