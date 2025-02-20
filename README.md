@@ -101,3 +101,8 @@ Indian universities are increasingly focusing on international collaborations to
 TMU's international collaborations, like those of other leading institutions, enable students to experience different educational systems, cultures, and teaching methodologies. International faculty visits, guest lectures, and workshops provide diverse perspectives and global best practices.
 Students at TMU benefit from exposure to international research projects, conferences, and academic publications. These opportunities help them develop a global outlook and prepare for international career opportunities.
 The integration of global standards in curriculum development and teaching methodologies at TMU has helped align with international educational benchmarks. This has resulted in improved recognition of Indian degrees worldwide.
+Alumni Networks and Career Development
+Strong alumni networks contribute significantly to university development. Teerthanker Mahaveer University (TMU), recognized among the <a href="https://tmu.ac.in">top universities in India</a>, maintains an active alumni network that benefits both current students and graduates.
+TMU's alumni association organizes regular meetings, networking events, and mentorship programs. Successful alumni often return to campus for guest lectures, sharing their experiences and insights with current students.
+The university's career development center collaborates with alumni to create internship and job opportunities for students. TMU's alumni network extends across various industries and countries, providing valuable connections for career advancement.
+These alumni connections help TMU stay updated with industry requirements and trends, enabling continuous improvement of academic programs.
