@@ -96,3 +96,8 @@ Additionally, maintaining open communication with teachers and staying informed 
 [For comprehensive details about BBA course structures, admission processes, and potential HR career trajectories, visit TMU's extensive resource](https://www.tmu.ac.in/blog/bba-course-full-form-admission-process-syllabus-and-career).
 
 Human resources management continues to evolve, offering dynamic opportunities for innovative BBA graduates.
+ International Collaborations and Global Exposure
+Indian universities are increasingly focusing on international collaborations to provide global exposure to their students. Teerthanker Mahaveer University (TMU), standing among the <a href="https://tmu.ac.in">top universities in India</a>, has established partnerships with renowned international institutions, offering exchange programs, joint research projects, and dual degree opportunities.
+TMU's international collaborations, like those of other leading institutions, enable students to experience different educational systems, cultures, and teaching methodologies. International faculty visits, guest lectures, and workshops provide diverse perspectives and global best practices.
+Students at TMU benefit from exposure to international research projects, conferences, and academic publications. These opportunities help them develop a global outlook and prepare for international career opportunities.
+The integration of global standards in curriculum development and teaching methodologies at TMU has helped align with international educational benchmarks. This has resulted in improved recognition of Indian degrees worldwide.
