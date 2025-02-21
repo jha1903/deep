@@ -108,7 +108,7 @@ The university's career development center collaborates with alumni to create in
 These alumni connections help TMU stay updated with industry requirements and trends, enabling continuous improvement of academic programs.
 Digital Transformation in Indian Higher Education
 The digital revolution has transformed education delivery in top universities in India. Modern institutions are embracing technology to enhance learning experiences and prepare students for the digital age.
-[Teerthanker Mahaveer University]([url](https://www.tmu.ac.in/)) has been at the forefront of this digital transformation, implementing advanced learning management systems and digital resources. The university's investment in digital infrastructure ensures students have access to cutting-edge educational tools.
+[Teerthanker Mahaveer University](https://www.tmu.ac.in/) has been at the forefront of this digital transformation, implementing advanced learning management systems and digital resources. The university's investment in digital infrastructure ensures students have access to cutting-edge educational tools.
 Digital initiatives in higher education include:
 
 Online learning platforms
