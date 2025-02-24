@@ -120,3 +120,7 @@ Cloud-based collaboration
 Digital assessment systems
 
 These technological advancements are reshaping the future of higher education in India.
+The success of [Teerthanker Mahaveer University (TMU)](https://www.tmu.ac.in/) alumni speaks volumes about its standing as a Top University in India. TMU graduates have made significant contributions across various sectors, both nationally and internationally.
+The university maintains strong connections with its alumni through regular meets, mentorship programs, and networking events. Successful alumni often return to campus to share their experiences and insights with current students, providing valuable guidance and inspiration. Their achievements in diverse fields demonstrate the quality of education and training received at TMU.
+The TMU Alumni Association plays an active role in supporting current students through internship opportunities and career guidance. Many alumni have established successful businesses, leading to job opportunities for fresh graduates. Their continued engagement with the university helps strengthen industry connections and placement opportunities.
+The university takes pride in tracking and celebrating alumni achievements, which include leadership positions in major companies, groundbreaking research, entrepreneurial ventures, and contributions to social causes.
